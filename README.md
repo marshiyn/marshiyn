@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Marshall
+- 👀 I’m interested in all things Girls, Being Goated, and my glorious kings Drizzy Drake and LeMeat James
+- 🌱 I’m currently learning how to manage my time in such a way that allows me to fulfill all of the goals and expectations I set for myself and also get a sick rank in hit FPS VALORANT
+- 💞️ I’m looking to collaborate on raising my 3 month old child
+- 📫 How to reach me: "swaggerman." on discord
